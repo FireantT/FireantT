@@ -1,4 +1,4 @@
---------------------------------------------------------------------------]
+ -------------------------------------------------------------------------]
 [![Masterhead](https://media.discordapp.net/attachments/986155392818110464/986160836953403442/ezgif.com-gif-maker2.gif?width=1440&height=180)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=5800&color=F74C00&width=550&height=85&lines=Staff+at+CyberCity;Join+our+discord%3A+https%3A%2F%2Fdiscord.gg%2Fmy9kgAxz)](https://discord.gg/my9kgAxz)
